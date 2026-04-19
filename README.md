@@ -22,5 +22,5 @@ I specialize in extracting alpha from complex market data, building robust backt
 
 ---
 📫 **Looking for a Quant/ML expert for your next project?** 
-[Hire me on Upwork](https://www.upwork.com/freelancers/~01af1814df74f85768)
+[Hire me on Upwork](https://www.upwork.com/freelancers/~01af1814df74f85768bbbb)
 [Find me in Threads](https://www.threads.com/@radio_fizuk)
